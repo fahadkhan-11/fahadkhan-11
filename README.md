@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Fahad ibn Muhammad
+- 👀 I’m interested in web development
+- 🌱 I’m currently learning CSS
+- 💞️ I’m looking to collaborate on web design 
+- 📫 How to reach me +923105356886
+- 😄 Pronouns: male
+- ⚡ Fun fact: I am also a professional gamer
